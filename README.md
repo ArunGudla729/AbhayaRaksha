@@ -2,7 +2,7 @@
 
 > Parametric Income Protection for India's Gig Delivery Workers
 
-**Demo Video:**  - 
+**Demo Video:**  - https://youtu.be/JSjbthavZE0
 
 ---
 
